@@ -2,7 +2,7 @@
 
 ###
 
-<img align="right" height="150" src="https://shorturl.at/IuUwo"  />
+<img align="right" height="150" src="https://cdn.discordapp.com/attachments/1290958445423493151/1338206736091316326/Computer_Working_GIF.gif?ex=67aa3da4&is=67a8ec24&hm=4634bad60b62dd8c37f20ac23d326d5aedc1981d3ce4d5a514f5fd6be8ba75a0&"  />
 
 ###
 
